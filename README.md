@@ -1,0 +1,1 @@
+# autoscoole.kz
